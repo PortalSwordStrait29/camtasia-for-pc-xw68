@@ -1,4 +1,4 @@
-# 
+# Enhance Camtasia for PC | Camtasia for Windows with exclusive Camtasia for PC | Camtasia for Windows Panel | auto-cut + color-grading, the #1 panel. Includes auto-cut and
 
 
 
